@@ -2,7 +2,7 @@
 - 👀 I’m interested in wotah
 - 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on something
-- 📫 How to reach me you dont
+- 📫 How to reach me: you dont
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: you can`t fall upwards
 
